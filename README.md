@@ -1,0 +1,1 @@
+# Memojiry-PrivacyPolicy
